@@ -1,6 +1,6 @@
 ### wan / dingo , he / her , 16
 
-glorified dry texer , feel free to c+h i love interacting
+glorified dry texter , feel free to c+h i love interacting
 sorry if i dont respond im usually offtab !!! 
 
 <!--
