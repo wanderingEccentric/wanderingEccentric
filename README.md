@@ -1,7 +1,5 @@
-### wan , 17
-often offtab 
-
-basic dni
+### wan . 17
+often offtab . basic dni
 
 dont use they on me . feel free to c+h 
 <!--
